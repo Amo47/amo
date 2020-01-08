@@ -1,0 +1,2 @@
+# amo
+FUCK COPS //CRASH 
